@@ -1,1 +1,1 @@
-# Check the AI_workshop_doc.pdf
+# Plese Check AI_workshop_doc.pdf
